@@ -1,3 +1,3 @@
 # hello-world-
 Just another respiratory 
- Hi My name is Lerecus I live in The Bahamas and I love to play basketball, it's my favorite sport.
+ Hi Humams My name is Lerecus, I live in the Bahamas and I Love the game of Basketball
